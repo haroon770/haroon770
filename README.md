@@ -1,4 +1,4 @@
-# Name: Haroon Ahmed Seeed Abdullatif
+# Name: Haroon Ahmed Saeed Abdullatif
 Responsible and active Pharmacist with 1+ years of experience 
 balancing heavy workloads while delivering unparalleled care. 
 Interested in working for stable company that well encourage my 
